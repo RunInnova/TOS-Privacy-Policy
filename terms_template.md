@@ -1,4 +1,4 @@
-# **Thrive Clips** TERMS OF SERVICE
+# **Thrive Clips** TERMS OF SERVICE 
 
 Last Updated: **[July 2025]**
 
